@@ -5,3 +5,4 @@ Co do posagu ludzie są dziwni że za kobietę z populacji i zegarek trzeba pła
 To niepełnosprawni biją sie o duży posag i duże ceny za wojsy tych zegarków gównie żydzi. Żydzi moim zdaniem nie różnią sie niczym od śmieci na wysypisku śmieci jak to 112. 
 Zegareki te oni przywłaszczają i karzą płacić lotto kumulacje euro jeck posag za ten zegarek samung wach pass. Zakłamane obietnice kaliego i post mafi o lepszym jutrze. 
 Tym zegarekom karzą pracować 30 lat na etacie. Samung to ludzie są bajki o lepszym życiu. 
+Kali i Głuchy karzą tym zegarką pracować na biznesach i magazynach i to oni na 30 lat przywłaszczyli zegarki za nasze pieniadze. Po tem razem 30 lat znajomi rostanie praca 30 lat i znów razem. To ci idioci nie chcą zatrudnić robotów do pracy tylko porywają zegarki do pracy i ludzi do pracy. Bezes to cieć. Kiedyś oni dostaną w mordę o ludzi za zniewagę. 
