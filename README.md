@@ -10,3 +10,4 @@ Zegarek smusng wach pass pewnie siedzi czasami w systemie schowka cyfrowego. I w
 Zegarek samsung wach pass miał być ze mną i miał nie pracować a go zabrali na 30 lat bez słowa teleportacją kwantową bez uzgadniania na wędkę radiową. Mówiłem do firm miały trafić roboty nie ludzie i nie zegarki i miały być drukarki kwantowe a nie surowce z kopalni. Do tych durni nic nie dociera. Dlatego zegarek samsung mam w dupie jak błagania kaliego i post mafi ich przegłosy że płaczą bezosy. 
 Te zegarki to wiejska mafia NGO. 
 Oni robią z kogoś debila i zabierają zegarek do pracy na etat. Że nic nie zabrali. Po tem zgłaszają sprawę do psychiatry. To są niepełnosprawni ludzie od tych krzywych akcji. 
+Zegarek samsung wach pass kradną na radio zawartość jaja sobie robią ci złodzieje z komuny. 
