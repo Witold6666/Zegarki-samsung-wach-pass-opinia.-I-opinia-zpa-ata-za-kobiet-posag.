@@ -11,3 +11,4 @@ Zegarek samsung wach pass miał być ze mną i miał nie pracować a go zabrali 
 Te zegarki to wiejska mafia NGO. 
 Oni robią z kogoś debila i zabierają zegarek do pracy na etat. Że nic nie zabrali. Po tem zgłaszają sprawę do psychiatry. To są niepełnosprawni ludzie od tych krzywych akcji. 
 Zegarek samsung wach pass kradną na radio zawartość jaja sobie robią ci złodzieje z komuny. 
+O co chodzi z tymi aferami. Samusng daje zegarki z kobietami i karze pracować na NGO i nagradza za to że można kobietę zobaczyć coś jak taka przynęta za prace. A Kali Linux ci z Kali Linux oni wymieniają prcesor na lewy procesor. Tym nie pełonsprawnym trzeba wystawić faktury za leczenie lub grupę niepełnosprawności. Cyber sicirity to jest polityka wirus tej Policji tych tępych ząbi. Izrael jest tępy. Zajmują się trolingiem i zmuszaniem do pracy. Zegarki to afery. 
